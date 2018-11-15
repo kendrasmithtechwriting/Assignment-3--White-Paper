@@ -18,3 +18,4 @@
 18. https://www.cdc.gov/salt/pdfs/sodium_dietary_guidelines.pdf
  
 I will be evaluating sodium in foods. What is is, why it is used, the benefits, the consequences, and how to formulate a low-sodium diet. I will also include charts of the recommended sodium intake per the CDC, and the actual sodium intake of Americans. These sources are government regulated and provided, so the information will be accurate and fair. They provide the national standards regulated by the Department of Health and Human Services and the Centers for Disease Control. They provide information on the related health issues caused by increased sodium levels like cardiovascular disease, etc. They also provide foods to avoid and foods to go to, as well as proper diets and precautionary things. 
+
